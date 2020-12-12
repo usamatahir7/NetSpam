@@ -1,2 +1,0 @@
-# Netspam
-musaamaataahir@gmail.com 
